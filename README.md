@@ -9,6 +9,9 @@ In preparing these accounts, the  Directors is required to:
 + State whether applicable International Accounting Standards have been departures disclosed and explained in the accounts;
 + Prepare the financial statements on the going-concern basis unless it is inappropriate to presume that the  Company will continue in business.
 
+***
 **METHODOLOGY**
+***
   + **AMA**
   + **KOJO**
+***
